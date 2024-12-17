@@ -1,2 +1,0 @@
-# technobliz
-# techno
